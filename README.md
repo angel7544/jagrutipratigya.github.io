@@ -1,2 +1,0 @@
-# jagrutipratigya.github.io
- 
